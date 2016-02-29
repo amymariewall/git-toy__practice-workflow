@@ -1,3 +1,0 @@
-# If you had intro music, what song would it be? Why?
-
-  * My theme song would probably be "Amie' for the obvious reason (that it includes my name, albeit spelled differently) and also that my Dad used to sing it to me when I was a little girl. It always made me feel really happy becauase I thought my Dad had written it with me in mind and Pure Prairie League got it from him. I felt so special I continued to like it long after I learned that I was not, in fact, the source of inspiration for a song written decades before my birth.
